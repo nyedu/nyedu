@@ -1,0 +1,4 @@
+nyedu
+=====
+
+Anything circumvents everything
